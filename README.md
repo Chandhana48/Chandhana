@@ -1,4 +1,4 @@
-# Hi, I'm Chandhana H! 👋
+# Hi, I'm Chandhana! 👋
 
 **Machine Learning Engineer | AI Enthusiast **
  
